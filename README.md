@@ -1,2 +1,3 @@
 # mallo
-i need a global in programming 
+i need person help me in about things in programming and answer my questions 
+
